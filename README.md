@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @iVersque
+- 👀 Discord:Vérsque#1071
+- Kodlama Sevmiyorum Editleme Tarafındayım.
